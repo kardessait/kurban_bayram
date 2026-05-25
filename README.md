@@ -39,6 +39,7 @@ kurban-bayrami/
 
 Gece gökyüzü temasında, salınan fenerler arasında pamuk gibi koyunlar ekranda yürür ve neon yazı parıldar.
 
+<img width="800" height="521" alt="WhatsAppVideo2026-05-25at23 10 13-ezgif com-video-to-gif-converter" src="https://github.com/user-attachments/assets/1f8b356f-07b1-4daf-b2fa-863b3447e827" />
 ---
 
 Tüm Müslümanların Kurban Bayramı mübarek olsun. 🌙
